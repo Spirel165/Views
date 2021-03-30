@@ -1,1 +1,1 @@
-![](https://komarev.com/ghpvc/?username=savageboy165&label=VIEWS)
+![](https://komarev.com/ghpvc/?username=savageboy165&label=Profile+Views)
